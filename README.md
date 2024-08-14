@@ -1,1 +1,10 @@
-ola quiero ser el mejhor programador quiero entrenar mucho hasta volverme el mas fuerte del mundo
+##TENGO QUE SER SIEMPRE EL MEJOR
+###EL MEJOR QUE HABRA JAMAS
+
+Atraparlos mi prueba es
+Entrenarlos, mi ideal
+
+-Yo viajaré de aquí a allá
+Buscando hasta el fin
+Oh, Pokémon, yo entenderé
+Tu poder interior
